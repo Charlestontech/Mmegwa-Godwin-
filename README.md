@@ -29,7 +29,10 @@ Here are a few projects I’ve worked on:
 ## 📫 Connect with me
 
 [LinkedIn](https://www.linkedin.com/in/mmegwa-godwin/) | [WhatsApp ].(https://chat.whatsapp.com/chuksman/| [Email](mailto: charlesejike9111@gmail.com)  
-
+[Twitter X]
+(@CEjike9111)
+[Telegram X]
+(chuksman9111)
 ---
 
 ## 📈 GitHub Stats
